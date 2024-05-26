@@ -1,4 +1,4 @@
-# sammyboi97.github.io
+# samy492.github.io
 
 Well hello there, thanks for checking out my portfolio!
-https://sammyboi97.github.io/
+https://samy492.github.io/
